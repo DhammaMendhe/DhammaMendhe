@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DhammaMendhe
 - 👀 I’m interested in software development...
 - 🌱 I’m currently learning about new technologies..
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Excited to co-create success with you,
 - 📫 How to reach me
 - linkedin :- https://www.linkedin.com/in/dhammadip-mendhe-8b8558230/,
 - email:- send2dhammadipmendhe@gmail.com,
